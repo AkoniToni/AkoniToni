@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Tony
-- 👀 I like playing the piano, going on hikes, hanging out with friends, and watching movies
+- 👀 I like playing the piano, going on hikes, watching interesting movies, and spending quality time with friends
 - 🌱 I’m currently learning C++ and MySQL
