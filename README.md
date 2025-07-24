@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Tony Coraggio
 
-I am a tenacious **Marketplace Specialist** with an intuitive problem-solving mind. I love all things music, as evidenced by the great satisfaction when harmony is achieved
+I am a **Marketplace Specialist** with an intuitive problem-solving mind. I'm passionate about successful teamwork and creating relational solutions to technical problems. I also love music! We should connect!
 
 ---
 
